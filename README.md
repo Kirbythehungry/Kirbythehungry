@@ -1,9 +1,17 @@
-## 🪞 -- Hey there, hello I'm Kirby, I go by Kirb and a couple other names.
-● I identify myself as having multiple personalities, that I will not disclose (the only reason I share the fact i do is beause it causes me to act weird at times.)
-● I go by all pronouns, and my gender is constantly sifting.
-⚪●•◦    📀 - - -  ◦  - - - 📀   ◦•●⚪
-  ## 🪞 --I prefer to stay mostly to myself or to trust individuals online meaning I may act rude or dismissive in conversations if we're just meeting.
-I choose to respect controversial identities or complicated identities, but this doesn't mean I support people under the Radqueer or right ring umbrella. If you are either please dni, otherwise you will be blocked.
+🪞 -- Hey there, hello I'm Kirby, I go by Kirb and a couple other names.
+
+ ● I identify myself as having multiple personalities, that I will not disclose (the only reason I share the fact i do is because it causes me to act weird at times.)
+
+ ● I go by all pronouns, and my gender is constantly sifting.
+ 
+ ⚪●•◦    📀 - - -  ◦  - - - 📀   ◦•●⚪
+  
+   🪞 --I prefer to stay mostly to myself or to trust individuals online meaning I may act rude or dismissive in conversations if we're just meeting.
+ ●•◦
+ 
+ I choose to respect controversial identities or complicated identities, but this doesn't mean I support people under the Radqueer or right ring umbrella. If you are either please dni, otherwise you will be blocked.
+●•◦
+
 Due to my personal beliefs I do not allow slurs to be said in conversation with me, this also includes reclaimed slurs as both run the risk of children learning of the words but not the past/meaning. This already has happened with the word "cult" and other such words. 
 <!--
 **Kirbythehungry/Kirbythehungry** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
